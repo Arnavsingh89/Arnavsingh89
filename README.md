@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @Arnavsingh89
-- 👀 I’m interested in programmig
+- 👋 Hi, I’m ARNAV 
+- 👀 I’m interested in programmig , CODING ,WASTING TIME
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ADDRESS: i dont have my personal home so dont dare to come in my house
-- 😄 Pronouns: ...
-- ⚡ Fun fact: i am of no use
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ADDRESS: I DON'T KNOW MY ADDRESS SO DONT COME YOU ARE NEVER INVITED
+- 😄 Pronouns: I DONT KNOW
+- ⚡ Fun fact: i WASTED YOUR TIME AND I AM OF NO USE
 - 
 
 <!---
